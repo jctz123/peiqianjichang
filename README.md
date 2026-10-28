@@ -11,7 +11,7 @@
 
 ## 目录
 
-- [一、赔钱机场官网地址](#一赔钱机场官网地址)
+- [一、赔钱机场最新官网地址](#一赔钱机场最新官网地址)
 - [二、赔钱机场简介](#二赔钱机场简介)
 - [三、赔钱机场套餐与价格](#三赔钱机场套餐与价格)
 - [四、赔钱机场优惠码](#四赔钱机场优惠码)
@@ -23,11 +23,28 @@
 - [十、赔钱机场常见问题 FAQ](#十赔钱机场常见问题-faq)
 - [十一、相关机场推荐资源](#十一相关机场推荐资源)
 
-## 一、赔钱机场官网地址
+## 一、赔钱机场最新官网地址
 
 搜索赔钱机场官网时，建议优先核对当前官方公告及服务入口，避免将历史域名、第三方推广页面或仿冒网站误认为官方网站。
 
 - **赔钱机场官网：** [赔钱.com](https://go2lk.pages.dev/53mwny)
+
+
+**当前正在使用的官网域名：**
+
+- [https://www.赔钱机场.site](https://www.赔钱机场.site/register?code=RJXPmRBE&cover=sfw) （推荐）
+- [https://dash.赔钱机场.site](https://dash.赔钱机场.site/register?code=RJXPmRBE&cover=sfw) （推荐）
+- [https://dash.pqjc.site](https://dash.pqjc.site/register?code=RJXPmRBE&cover=sfw) （可以直连）
+- [https://dash.赔钱.com](https://dash.赔钱.com/register?code=RJXPmRBE&cover=sfw) (可以直连)
+- [https://赔钱机场.com](https://赔钱机场.com/register?code=RJXPmRBE&cover=sfw) (需要代理)
+- [https://赔钱机场.site](https://赔钱机场.site/register?code=RJXPmRBE&cover=sfw) (需要代理)
+
+某一个域名访问有问题时，可尝试访问其他域名
+
+
+官网频道群
+
+tg群：https://t.me/peiqianjichang1
 
 ## 二、赔钱机场简介
 
